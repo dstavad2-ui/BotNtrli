@@ -1,2 +1,0 @@
-# BotNtrli
-Naturlig. 
